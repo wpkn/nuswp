@@ -1,13 +1,9 @@
-<!--
+---
 title: 新加坡国立大学毕业证 (National University of Singapore Diploma) 深度解析
 meta_title: 新加坡国立大学毕业证全面指南 | 2026年NUS学位含金量与学历认证全攻略
 description: 深度解析新加坡国立大学毕业证(National University of Singapore Diploma)的防伪工艺、2026最新QS世界排名含金量、数字化管理等热门专业起薪，并提供详尽的中留服学历认证、留信网认证与海牙认证回国落户指南。
 keywords: 新加坡国立大学毕业证, National University of Singapore Diploma, NUS毕业证防伪, 中留服认证, 留信认证, 数字化转型硕士, 新加坡起薪, 留学生落户
-author: 留学职场前沿观察
-date: 2026-11-02
-changefreq: monthly
-priority: 1.0
--->
+---
 
 # 新加坡国立大学毕业证（National University of Singapore Diploma）全景解析：2026年学位含金量与回国认证全攻略
 
