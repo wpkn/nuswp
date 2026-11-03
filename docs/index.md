@@ -8,7 +8,7 @@ keywords: 新加坡国立大学毕业证, National University of Singapore Diplo
 
 作为全球高等教育的领跑者，**新加坡国立大学**（National University of Singapore，简称 **NUS**）在 2026 年的 QS 世界大学排名中继续稳居**亚洲第1、全球前15**。持有这所顶尖学府的毕业证，不仅是一段卓越学术旅程的终点，更是全球精英职场的“至尊通行证”。
 
-![新加坡国立大学毕业证样本及学位证文凭样本模版(National University of Singapore Diploma/Certificate of Degree)](nus-diploma.jpg)
+![新加坡国立大学毕业证及学位证文凭样本模版(National University of Singapore Diploma/Certificate of Degree)](nus-diploma.jpg)
 
 为了帮助广大留学生、跨国职场菁英以及计划申请 NUS 的学子深入了解这份荣誉背后的无形资产，本文结合了百度指数与谷歌趋势的**高频热搜词（如：中留服学历认证、留信认证、QS世界排名、毕业生起薪、硕士学位含金量、数字化转型专业）**，从证书防伪设计、核心专业含金量、国内/国际双轨认证到全球就业前景进行全方位深度拆解。
 
